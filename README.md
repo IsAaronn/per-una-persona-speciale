@@ -1,0 +1,1 @@
+# per-una-persona-speciale
